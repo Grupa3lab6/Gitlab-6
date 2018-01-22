@@ -8,3 +8,5 @@ allalalala
 lalalal
 aaaa
 lalalalala
+DZIAŁA OOOOOOO
+BOIIIIIIIIIIIIIIIIIIIII

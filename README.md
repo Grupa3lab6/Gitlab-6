@@ -1,1 +1,2 @@
 README.md
+funkcja liniowa

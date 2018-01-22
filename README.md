@@ -4,3 +4,4 @@ Dajcie mi siły panowie
 nie wytrzymam z tym zara
 XDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 XDDDDDDDDDDDDDDXDDDDasddsad
+allalalala

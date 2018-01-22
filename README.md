@@ -3,3 +3,4 @@ funkcja
 funkcja
 funkcja
 funkcja
+funkcja

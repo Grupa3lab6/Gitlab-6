@@ -1,1 +1,1 @@
-NIe wiem o co cho
+NIe wiem o co :CCCCCCCCCC

@@ -4,3 +4,4 @@ funkcja liniowa
 funkcja liniowa
 funkcja liniowa
 funkcja liniowa
+funkcja liniowa

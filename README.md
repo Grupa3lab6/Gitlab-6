@@ -1,2 +1,2 @@
 NIe wiem o co :CCCCCCCCCC
-Dupa Wilku
+JA tak samo :D
